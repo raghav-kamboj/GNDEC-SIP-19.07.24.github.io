@@ -4,10 +4,6 @@
 
 ---
 
-** **
-
----
-
 #### Session 1: Interaction with Seniors on Canva
 - **Time:** 9:00 AM - 10:30 AM
 - **Location:** Room F-106
